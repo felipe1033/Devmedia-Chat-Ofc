@@ -1,2 +1,0 @@
-# Devmedia-Chat-Ofc
-Pronto
